@@ -1,1 +1,1 @@
-Wow, this is amazing
+Coding is amazing
